@@ -1,6 +1,3 @@
-# <a href="https://partner.bahisabiaffiliates.com/imp/bahisabi/1239">Bahisabi.com</a>
-# <a href="https://partner.bahisabiaffiliates.com/imp/bahisabi/1239">TIKLA VE GİRİŞ YAP</a>
-
 <a href="https://partner.bahisabiaffiliates.com/imp/bahisabi/1239"><img src="https://resmim.net/cdn/2025/01/26/DarSFy.png"></a>
 
 <a href="https://partner.bahisabiaffiliates.com/imp/bahisabi/1239"><img src="https://resmim.net/cdn/2025/01/26/DarfED.png"></a>
